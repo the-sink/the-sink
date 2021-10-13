@@ -1,4 +1,4 @@
-Programming as a hobby since 2015! It's pretty cool I guess.
+Programming as a hobby since 2015! Student in Seattle, Washington.
 
 Contact me on Discord at The_Sink#4096.
 
