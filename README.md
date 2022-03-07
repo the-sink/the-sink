@@ -1,4 +1,4 @@
-CS Student in Seattle, Washington with an interest in game development, infrastructure, and atmospheric science (weird combination isn't it?)
+CS Student in Seattle, Washington with an interest in game development, infrastructure, and music
 
 Contact me on Discord at The_Sink#4096!
 
