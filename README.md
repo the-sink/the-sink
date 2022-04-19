@@ -1,4 +1,4 @@
-CS Student in Seattle, Washington with an interest in game development, infrastructure, and music
+CS Student in Seattle, Washington
 
 Contact me on Discord at The_Sink#4096!
 
